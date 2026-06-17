@@ -2,7 +2,7 @@
 
 **Data Analyst | Applied Economics | Python · SQL · Machine Learning**
 
-M.S. Applied Economics, George Washington University · Sacramento, CA · Open to data analyst roles
+M.S. Applied Economics, George Washington University · California · Open to data analyst roles
 
 ---
 
